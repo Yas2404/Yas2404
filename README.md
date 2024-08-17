@@ -8,5 +8,9 @@ Meu nome é Yasmin Marcolino
 
 ### você entrar em contato comigo 📫 
 
-0000114750430sp@al.educacao.sp.gov.br
+0000114750430sp@al.educacao.sp.gov.b
 
+
+@yasminxpaes
+
+https://media.tenor.com/i7llDaIPtuAAAAC/Stitch.gif
